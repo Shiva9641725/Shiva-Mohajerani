@@ -55,7 +55,7 @@ Parameter-performance mapping and microstructure-informed process development.
 ## 📫 Connect With Me
 
 - LinkedIn: [https://www.linkedin.com/in/shiva-mohajerani-68144311b/]
-- Personal Website: [Your Domain]
+- Personal Website: [https://shivamohajerani94.wixsite.com/my-site]
 - Email: shiva.mohajerani94@gmail.com
 
 ---
